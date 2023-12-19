@@ -18,12 +18,8 @@ A coming-of-age film is centered around the themes of youth, growing up, and mat
 4. **Little Miss Sunshine (2006)** directed by Jonathan Dayton, Valerie Faris
 [Little Miss Sunshine on Letterboxd](https://letterboxd.com/film/little-miss-sunshine/)
 ![Facade](https://i.pinimg.com/originals/4c/f9/b9/4cf9b9d1f2195b00a413b1121cc996f5.jpg)
-*a family on the verge of a breakdown. also paul dano in that one scene whajkahsdflkgf*
+*a family on the verge of a breakdown*
 5. **Little Women (2019)** directed by Greta Gerwig
 [Little Women on Letterboxd](https://letterboxd.com/film/little-women-2019/)
 ![Facade](https://i.pinimg.com/originals/77/54/68/7754682e32f35b44ba0c64675979fcdf.jpg)
-everybody and their mother has heard about this movie already but for those who still don't know about it, GO WATCH IT! if you have sisters then you should definitely watch this with them.
-
-___________________________________________________________________________________________________________________________________
-
-all these movies are ★★★★★ (5) stars but if you disagree you will be dealt with (obviously a joke)
+*everybody and their mother has heard about this movie already but for those who still don't know, GO WATCH IT! if you have sisters then you should definitely watch this with them*
