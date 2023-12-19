@@ -8,30 +8,30 @@ A coming-of-age film is centered around the themes of youth, growing up, and mat
 ### Some of my favorites
 - **Lady Bird (2017)** directed by Greta Gerwig
 
-![Facade](https://i.pinimg.com/originals/5b/e8/1a/5be81a229b881674352e7a42145271fa.jpg)
+![Facade](https://www.pinterest.ph/pin/841962092870511671/)
 
 *watch (or don't) if you have mommy issues*
 
 - **The Perks of Being A Wallflower (2012)** directed by Stephen Chbosky
 
-![Facade](https://i.pinimg.com/originals/5b/c1/7b/5bc17b6ef6493481921155f1932e3621.jpg)
+![Facade](https://www.pinterest.ph/pin/841962092870511658/)
 
 *i recommend reading the book before watching the movie. watch for better music recommendations*
 
 - **Moonrise Kingdom (2012)** directed by Wes Anderson
 
-![Facade](https://i.pinimg.com/originals/2c/4c/82/2c4c824f8b342d243e5f6b0185bd3ee4.jpg)
+![Facade](https://www.pinterest.ph/pin/841962092870511660/)
 
 *a modern love story that i absolutely adore*
 
 - **Little Miss Sunshine (2006)** directed by Jonathan Dayton, Valerie Faris
 
-![Facade](https://i.pinimg.com/originals/4c/f9/b9/4cf9b9d1f2195b00a413b1121cc996f5.jpg)
+![Facade](https://www.pinterest.ph/pin/841962092870511673/)
 
 *a family on the verge of a breakdown*
 
 - **Little Women (2019)** directed by Greta Gerwig
 
-![Facade](https://i.pinimg.com/originals/77/54/68/7754682e32f35b44ba0c64675979fcdf.jpg)
+![Facade](https://www.pinterest.ph/pin/841962092870511655/)https://www.pinterest.ph/pin/841962092870511655/
 
 *the superior adaptation, argue with the wall*
