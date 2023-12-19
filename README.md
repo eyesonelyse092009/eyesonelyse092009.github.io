@@ -1,4 +1,3 @@
-Elyse Rodriguez
 # Coming-of-Age Films ⊹ ࣪ ˖
 ### What is a coming-of-age film?
 A coming-of-age film is centered around the themes of youth, growing up, and maturation with a strong focus on a central character arc. These films follow a singular protagonist as they “come of age,” meaning they progress into the next stage of their life. Protagonists are typically young and facing the first major dilemma, ordeal, or awakening of their life. The genre often centers around major shifts or milestones in a character’s life as they grow up. 
