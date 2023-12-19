@@ -31,4 +31,4 @@ A coming-of-age film is centered around the themes of youth, growing up, and mat
 
 ![Facade](https://i.pinimg.com/originals/77/54/68/7754682e32f35b44ba0c64675979fcdf.jpg)
 
-*everybody and their mother has heard about this movie already but for those who still don't know, GO WATCH IT!
+*everybody and their mother has heard about this movie already but for those who still don't know, GO WATCH IT!*
