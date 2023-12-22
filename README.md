@@ -35,3 +35,9 @@ A coming-of-age film is centered around the themes of youth, growing up, and mat
 ![Facade](https://i.pinimg.com/originals/b5/c5/ba/b5c5baf3bab54467c469225e87ad254f.png)
 
 *the superior adaptation, argue with the wall*
+
+- **Submarine (2010)** directed by Richard Ayoade
+
+![Facade](https://i.pinimg.com/originals/98/e4/8c/98e48ccec9292ab6c0ec39c4d62eca6f.jpg)
+
+*with songs from Alex Turner's EP of the same name, which i highly recommend listening to after watching the movie*
