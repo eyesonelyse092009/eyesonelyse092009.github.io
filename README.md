@@ -10,7 +10,7 @@ A coming-of-age film is centered around the themes of youth, growing up, and mat
 
 ![Facade](https://i.pinimg.com/originals/06/6f/1d/066f1d127eb9f995d14de0cd15442d26.png)
 
-*An A24 Masterpiece about girlhood*
+*An A24 masterpiece about girlhood*
 
 - **The Perks of Being A Wallflower (2012)** directed by Stephen Chbosky
 
